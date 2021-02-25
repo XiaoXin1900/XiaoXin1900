@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm XiaoXin1900, still a student. Click <a href="www.xiaoxin1900.club">here</a> to go my Blog website.
+I'm XiaoXin1900, still a student. Click <a href="https://xiaoxin1900.club">here</a> to go my Blog website.
   
 _(:з」∠)_
 
