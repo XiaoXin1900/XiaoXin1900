@@ -1,16 +1,14 @@
 ### Hi there 👋
 
-<!--
-**XiaoXin1900/XiaoXin1900** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm XiaoXin1900, still a student. Click <a href="www.xiaoxin1900.club">here</a> to go my Blog website.
+  
+_(:з」∠)_
 
-Here are some ideas to get you started:
+Like a lot, but few proficient. Magic Cube、Mine-sweeping、Code and so on. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+#### other social websites
+
+🎦<a href="https://space.bilibili.com/628626163">BiliBili</a>(Video Sharing)
+📕<a href="https://www.zhihu.com/people/bu-avg15bu-gai-ming">ZhiHu</a>(Q&A)
+
+
