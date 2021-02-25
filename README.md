@@ -8,7 +8,7 @@ Like a lot, but few proficient. Magic Cube、Mine-sweeping、Code and so on.
 
 #### other social websites
 
-🎦<a href="https://space.bilibili.com/628626163">BiliBili</a>(Video Sharing)
+🎦<a href="https://space.bilibili.com/628626163">BiliBili</a>(Video Sharing)<br>
 📕<a href="https://www.zhihu.com/people/bu-avg15bu-gai-ming">ZhiHu</a>(Q&A)
 
 
